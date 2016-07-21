@@ -1,4 +1,4 @@
-★ Plase raw brick the button★  
+★ Plase raw click the button★  
 
 Hello how are you?
 Let me introduce myself
