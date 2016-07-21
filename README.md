@@ -2,7 +2,8 @@
 
 Hello how are you?
 Let me introduce myself
-I am in my year of college
+I live in jeonju korea
+I am in my third year of college
 I am 25 years
 
 Thank you for your help and cooperation in advance
